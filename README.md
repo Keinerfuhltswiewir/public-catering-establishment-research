@@ -1,1 +1,0 @@
-# public_catering_establishment_research
